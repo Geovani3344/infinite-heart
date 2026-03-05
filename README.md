@@ -14,5 +14,5 @@ Um coração infinito que representa um amor sem fim. Simples, bonito e cheio de
 
 ## 🚀 Como ver
 
-Acesse: https://geovani3344.github.io/coracao-infinito/
+Acesse:https://geovani3344.github.io/infinite-heart/
 
